@@ -4,7 +4,7 @@ CZF的小破站
 
 学校秉持“博雅、格致、思辨、勤勉”的校训，努力践行“育人为本、改革创新、面向世界、追求卓越”的办学理念，以建设“高质量、有特色、现代化、国际化”为办学目标，致力于培养具有“民族根基、国际视野、多元融合、全面发展”的适应国际竞争的复合型预备人才。
 
-![url](www.dgfls.net/uploads/2736/image/public/201803/20180330153417_4iiepd5kvh.jpg)
+[![EXzWSx.md.jpg](https://s2.ax1x.com/2019/05/19/EXzWSx.md.jpg)](https://imgchr.com/i/EXzWSx)
 
 快要中考啦
 好紧张
